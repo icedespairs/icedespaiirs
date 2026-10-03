@@ -5,3 +5,4 @@ if u do ill give robux /j
 my typology is SEE ESFP (SeFiTeNi) 8w7 sx/sp 826 VFLE /S/[L]xEn /M/xhiD[R]g sang-chol
 
 i also would like it if u would use tone tags w me! 
+im ok w/ friend reqs! idm !!! int w me first though !! because i have bad memory,,, so remind me pls!
